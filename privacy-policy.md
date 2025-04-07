@@ -1,4 +1,4 @@
-Gizlilik Politikası
+Gizlilik Politikası 
 
 Son Güncelleme: 07.03.2025
 
